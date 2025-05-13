@@ -1,1 +1,1 @@
-![Mobiusium Banner](https://github.com/user-attachments/assets/cbf907a5-3c22-4fe1-adec-a9429fadcadf)
+![Mobiusium Banner](https://github.com/user-attachments/assets/a10568c6-36a0-43fa-a59a-bed9907cb1e9)
